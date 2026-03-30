@@ -4,7 +4,7 @@
 # Curriculum Vitae
 
 **Alakhe Mxakato**
-(+27) 79 580 6191 | sbumabudah824@gmail.com | LinkedIn | GitHub
+(+27) 79 580 6191 | sbumabudah824@gmail.com | [LinkedIn](https://www.linkedin.com/in/alakhe-mxakato-767825352/) | [GitHub](https://github.com/AlakheMxakato)
 ## EDUCATION
 * Good Hope Adventist High School | Cape Town, Western Cape 2018 - 2022
   
